@@ -1,0 +1,1 @@
+# adamdayquotes.github.io
